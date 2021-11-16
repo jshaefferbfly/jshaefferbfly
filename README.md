@@ -1,4 +1,4 @@
-# J.D. Shaeffer
+# JD Shaeffer
 ### Butterfly Network Account
 #### jshaeffer@butterflynetinc.com
 
